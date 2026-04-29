@@ -1,4 +1,8 @@
-## Wippy wippy hi
+"Bubble my spit, my spit you wanna go and I'm waiting, I'm waiting..."
+
+Wippy wippy hi
+
+"its filthy disgusting so ugly, im sure..."
 
 <!--
 **Lovelettr/Lovelettr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
