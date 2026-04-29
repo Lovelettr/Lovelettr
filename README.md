@@ -1,8 +1,8 @@
-"Bubble my spit, my spit you wanna go and I'm waiting, I'm waiting..."
+"He's my man, we're hand in hand to hell and back..."
 
 Wippy wippy hi
 
-"its filthy disgusting so ugly, im sure..."
+"...and I'll love him like nobody else can..."
 
 <!--
 **Lovelettr/Lovelettr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
