@@ -1,6 +1,7 @@
 "He's my man, we're hand in hand to hell and back..."
 
 Wippy wippy hi
+Dumb puppy :3 
 
 "...and I'll love him like nobody else can..."
 
