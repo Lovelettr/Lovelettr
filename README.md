@@ -12,7 +12,6 @@
        <h4 align="center">✎ᝰ﹏Info ♡ <br> <br> Sharkie or Navi | <i>She</i>/Her | Adult | Bpd + auDHD <br> <br> ♡ Feel free to int with me but be aware I block freely. <br> <br> ♡ Im usually afk / offtab so feel free to whisper me, I will usually respond whenever I see the whisp!! <br> <br> ♡ I mostly sit with friends / moots. <br> <br> ♡ Docks lurker that sometimes sits at spawn <br> <br> ♡ Byi; I tend to dissociate a lot, I get clingy and attached to my friends, tone tags arent needed but help <br> <br><i>♡ Dni if you're under 16 + basic dni list. <br> <br>♡ I am married irl, please do not flirt with me. </i></h4>
       </td>
       <br>
-    this is still a wip im not sure if i want it sable themed yet or not...sigh
-<p align="center"><sub>hey, before you go, you should sign my <a href="https://loveletters.atabook.org/">atabook</a> or check out my <a href="https://github.com/Lovelettr/">strawpage</a> for more!</sub></p>
+<p align="center"><sub>Waves,while yer here you should sign my <a href="https://loveletters.atabook.org/">atabook</a> and check out my <a href="https://github.com/Lovelettr/">strawpage</a> for more info! Straw is currently a wip so unlinked atm!</sub></p>
 
 <td> <img width="300" height="300" src="https://file.garden/Zg_tU9aqB354yRzp/sable.webp" /> </td>
