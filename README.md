@@ -1,4 +1,4 @@
-<h3 align="center"> <img width="1500" height="90" alt="image" src="https://64.media.tumblr.com/32ffb42eb68f217159db93287ac2cf59/721e61f5c3b4cb7d-99/s1280x1920/8e7926503504a35cd9c730b51e4a251e7ea83934.pnj" />
+  <h3 align="center"> <img width="1500" height="90" alt="image" src="https://64.media.tumblr.com/32ffb42eb68f217159db93287ac2cf59/721e61f5c3b4cb7d-99/s1280x1920/8e7926503504a35cd9c730b51e4a251e7ea83934.pnj" />
 <h2 align="center">  <blockquote> "She's the serpentine, she's my collar" </blockquote> </center> </h2>
 <table>
   <tbody>
@@ -12,6 +12,6 @@
        <h4 align="center">✎ᝰ﹏Info ♡ <br> <br> Sharkie or Navi | <i>She</i>/Her | Adult | Bpd + auDHD <br> <br> ♡ Feel free to int with me but be aware I block freely. <br> <br> ♡ Im usually afk / offtab so feel free to whisper me, I will usually respond whenever I see the whisp!! <br> <br> ♡ I mostly sit with friends / moots. <br> <br> ♡ Docks lurker that sometimes sits at spawn <br> <br> <br> ♡ Byi; I tend to dissociate a lot, I have awful memory and WILL forget to respond to ppl, tone tags arent needed but help <br> <br><i>♡ Dni if you're under 16 + basic dni list. <br> <br>♡ I am married irl, please do not flirt with me. </i></h4>
       </td>
       <br>
-<p align="center"><sub>Waves,while yer here you should sign my <a href="https://loveletters.atabook.org/">atabook</a> and check out my <a href="https://github.com/Lovelettr/">strawpage</a> for more info! Straw is currently a wip so unlinked atm!</sub></p>
+<p align="center"><sub>Waves,while yer here you should sign my <a href="https://loveletters.atabook.org/">atabook</a> and check out my <a href="https://lovebiter.straw.page">strawpage</a> for more info! Straw is currently a wip so unlinked atm!</sub></p>
 
 <td> <img width="300" height="300" src="https://file.garden/Zg_tU9aqB354yRzp/sable.webp" /> </td>
